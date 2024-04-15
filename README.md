@@ -11,7 +11,13 @@
 
 - 📫 Você me acha através do e-mail **pedrodavi2000@hotmail.com**
 
-- 📄 Sou graduado em Enfermagem pela Universidade Unijaguaribe e estou ingressando na área de análise de dados com entusiasmo e determinação. Tenho uma sede insaciável por aprendizado e uma paixão por desafios, buscando constantemente meu crescimento nesse campo. Atualmente, atuo como analista de dados na Sete Sonhos Colchões, onde desempenho um papel fundamental como coordenador em um projeto de implementação de sistema de gestão empresarial (ERP). Minha responsabilidade inclui a análise e interpretação de dados para otimizar a eficiência operacional da empresa. Estou comprometido em contribuir para a modernização e otimização dos processos, buscando sempre a excelência na gestão de informações para impulsionar o sucesso organizacional. Anteriormente, destaquei-me como Consultor, liderando estratégias de vendas focadas na experiência do cliente. Utilizei análise de dados para identificar as necessidades dos clientes, o que resultou na superação consistente das metas de vendas e na fidelização da clientela. Acredito firmemente no poder da análise de dados para impulsionar soluções impactantes e estou pronto para explorar todas as possibilidades e aprender continuamente nesta Área. [https://www.linkedin.com/in/pedrodquirino/](https://www.linkedin.com/in/pedrodquirino/)
+- 📄 Sou enfermeiro formado pela Universidade Unijaguaribe. Tenho uma fome insaciável por aprendizado, uma paixão por projetos desafiadores e estou determinado a crescer continuamente como Analista de Dados. 
+
+Atualmente, exerço a função de analista de dados na Sete Sonhos Colchões, onde desempenho o papel de um dos coordenadores no projeto de implementação de um sistema de gestão empresarial (ERP). Minha atuação nesse projeto envolve a análise e interpretação de dados, contribuindo para a eficiência operacional da empresa. Estou entusiasmado em fazer parte desse processo de modernização e otimização, buscando constantemente a excelência na gestão de informações para impulsionar o sucesso de todos os setores.
+
+Como Consultor, destaquei-me ao liderar vendas com foco na experiência do cliente, empregando análise de dados para identificar os pontos mais procurados pelos clientes. Minha gestão eficiente de leads por meio de CRM e planilhas, aliada à abordagem única centrada na comunicação empática e compreensão profunda das necessidades, não só resultou na consistente superação das metas de vendas, mas também na fidelização dos clientes.
+
+Acredito que a análise de dados é a chave para soluções impactantes, e estou pronto para explorar as possibilidades e aprender mais a cada passo. [https://www.linkedin.com/in/pedrodquirino/](https://www.linkedin.com/in/pedrodquirino/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
